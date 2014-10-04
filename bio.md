@@ -1,4 +1,4 @@
-Hello, my name is Renee and I live in Hillsboro, Oregon. I am a licensed elementary school teacher, and I also teach driver education. 
+Hello, my name is Renee and I live in Hillsboro, Oregon. I am a licensed elementary school teacher, and I also teach driver education. I taught 3rd grade and Kindergarten.
 I have many interests.   I love being outside. Hiking, camping, fishing, swimming, skiing... anything that has to do with outside is great. I also ride a motorcycle and enjoy back roads motorcycle rides.
 I have two sons, Ryan and Jackson, that keep me busy when I'm not working or studying.  We love exploring the Portland area together.  The 4T is our favorite hike, so if you are ever in the area, look us up and we will take you to see a great view of the city!!
 
